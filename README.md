@@ -1,3 +1,3 @@
 # kinopoisk
 
-![Screenshot](wolf3d_new.png)
+![Screenshot](tg_image_3758329333.jpeg)
